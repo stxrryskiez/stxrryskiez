@@ -6,4 +6,4 @@ if someone problematic is following me, pls lmk on my atabook <a href="https://d
 
  i dont follow back unless i know u !!
  
-<img src="https://github.com/user-attachments/assets/2d917486-b6d3-43fe-a53c-1065bfc7af9a" width="700px">
+<img src="https://github.com/user-attachments/assets/2d917486-b6d3-43fe-a53c-1065bfc7af9a" width="500px">
