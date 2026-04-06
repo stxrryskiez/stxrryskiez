@@ -1,5 +1,5 @@
 # wren / stxrryskiez
-this is my alt, you can flw me here cuz i have my main privated O_o
+this is my alt, you can flw me here since i have my main privated O_o
 <br>
 if someone problematic is following me, pls lmk on my atabook <a href="https://despicablehorror.atabook.org/">here!!
 <br>
